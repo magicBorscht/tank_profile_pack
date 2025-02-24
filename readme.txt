@@ -1,4 +1,4 @@
-Congratulations, you've stumbled upon a Tank-B profiles pack made on gear I had lying around or borrowed to me by Mr. Bassberserk (go to YouTube, type "Bassberserk" in the search bar, subscribe to the channel). While everyone around making profiles of Ampegs and stuff, I am making profiles of an ancient Yamaha preamp with a guitar overdrive pedal. Why? Because DIY is fun and authentic. Basically, this is a pack of profiles for anyone who appreciates down-to-earth and authentic approach to sound.
+Congratulations! You've stumbled upon a Tank-B profiles pack, created using gear I had lying around or borrowed from Mr. Bassberserk (head over to YouTube, search for "Bassberserk," and subscribe to the channel). While everyone else is making profiles of Ampegs and stuff, I'm profiling an ancient Yamaha preamp with a guitar overdrive pedal. Why? Because DIY is fun and authentic. Basically, this pack is for anyone who appreciates a down-to-earth and genuine approach to sound.
 
 All profiles are more or less adjusted for volume, eq values:
 
